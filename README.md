@@ -9,9 +9,7 @@
 沟通交流：进入官网联系作者
 
 
-[XMind_ZEN_10.1.2_绿色版_64位.7z]( https://pan.quark.cn/s/3a4480b37270)
-
-[XMind_ZEN_10.1.2_绿色版_64位.7z]( https://pan.quark.cn/s/3a4480b37270)
+[XMind_ZEN_10.1.2_绿色版_64位.7z](https://pan.quark.cn/s/3a4480b37270)
 
 [465个黑科技（PC端）](https://pan.quark.cn/s/494f7a01a687)
 
